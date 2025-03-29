@@ -25,4 +25,16 @@ If you want access to the **full source code**, please message me on TikTok.
 
 ---  
 
+## 📸 Students Section Preview  
+
+
+![Image](https://github.com/user-attachments/assets/baebb672-d94b-4eac-9d6c-ff1b3edf2f9a)
+
+![Image](https://github.com/user-attachments/assets/533c119d-2543-4a36-ba86-c2b3ce8aefe4)
+
+![Image](https://github.com/user-attachments/assets/e8194156-8777-4fa7-8c79-2532abef8d14)
+
+
+
+
 
