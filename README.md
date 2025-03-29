@@ -34,7 +34,16 @@ If you want access to the **full source code**, please message me on TikTok.
 
 ![Image](https://github.com/user-attachments/assets/e8194156-8777-4fa7-8c79-2532abef8d14)
 
+<br>
 
+## 📸 Canteen Section Preview  
+
+
+![Image](https://github.com/user-attachments/assets/8be631b3-027c-4b86-b5da-921b39a9599c)
+
+![Image](https://github.com/user-attachments/assets/2426b335-aea3-43a1-95bf-53e0cfa9cec5)
+
+![Image](https://github.com/user-attachments/assets/9c985e35-e965-4fa7-a66b-2be4eb7d0cd9)
 
 
 
